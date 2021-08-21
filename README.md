@@ -1,6 +1,10 @@
 # Фнаф - Полезные Файлы
 Все файлы созданы ЙЦУКЕН
+<br><br>
+**Полезные ссылки:**
 <br>
-[YouTube](https://youtube.com/jestx_fot)
+https://fnaf.now.sh
 <br>
-[Telegram](https://t.me/jestx_fot)
+https://youtube.com/jestx_fot
+<br>
+https://t.me/jestx_fot
