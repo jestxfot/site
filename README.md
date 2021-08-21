@@ -8,3 +8,5 @@ https://fnaf.now.sh
 https://youtube.com/jestx_fot
 <br>
 https://t.me/jestx_fot
+<br>
+ВК: https://vk.com/arkins
