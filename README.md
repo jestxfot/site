@@ -5,8 +5,8 @@
 <br>
 https://fnaf.now.sh
 <br>
-https://youtube.com/jestx_fot
+YouTube: https://youtube.com/jestx_fot
 <br>
-https://t.me/jestx_fot
+Telegram: https://t.me/jestx_fot
 <br>
-ВК: https://vk.com/arkins
+VK: https://vk.com/arkins
