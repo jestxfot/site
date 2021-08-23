@@ -28,6 +28,9 @@ NOTES: IGNORE "FRIENDLY LAUGH", "BIRTHDAY JINGLE", "SAFETY PROTOCOL",
 AND "MANUAL CONTROL OVERRIDE". IF POSSIBLE ADDRESS "HOLIDAY SPECIAL" BEFORE END OF YEAR.
 IF ISSUES PERSIST FACTOR BACKUP HOLIDAY OUTIFTS INTO BUDGET.....
 
+Непосредственно перед этим есть фраза: IDRTN_NMRTN_TPLS_TCHCKLS_TRSLTSTTS,
+которая кажется является заголовками, именами каждого из столбцов, поэтому полное представление будет следующим:
+
 IDRTN   NMRTN                   TPLST         CHCKLST   RSLTSTS
 1       "WAKEUP"                PERFORMANCE   43D       PASSAVAILABLE
 2       "LOOKAROUND"            PERFORMANCE   43D       PASSAVAILABLE
@@ -41,3 +44,7 @@ IDRTN   NMRTN                   TPLST         CHCKLST   RSLTSTS
 10      "HOLIDAYSPECIAL"        PERFORMANCE   201D      FAILRESTRICTED
 11      "SAFETYPROTOCOL"        MAINTENANCE   201D      FAILRESTRICTED
 12      "MANUALCONTROLOVERRIDE" MAINTENANCE   201D      FAILAVAILABLE(!)
+
+IDRTN and NMRTN are pretty obviously "ID of routine" and "name of routine" respectively,
+and CHCKLST seems to be "CHECKLIST",
+so the second teaser is Freddy going through checklist 43D and failing ID 5.
