@@ -3,7 +3,7 @@
 <br><br>
 **Полезные ссылки:**
 <br>
-https://fnaf.now.sh
+https://jestx.vercel.app
 <br>
 YouTube: https://youtube.com/jestx_fot
 <br>
