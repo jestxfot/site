@@ -33,6 +33,8 @@ ś̸̢o̴̩̊m̶̯̂e̴̺̍o̵̟̿n̴̠͝ě̷͇s̸̓ͅẁ̸̘â̸̯t̶̙͑c̵
 W̸͕̠͗̊̐͝ê̴͇ ̵̢͉͗͊K̶̡̤͎̘̊n̶̨͕̯̬̈́̚̕o̸̟̙̊͐̔̏͜͜w̷̛̩̣̣̝͊ ̴̡̪̒͜A̶̙̲̳̙̔̄l̶̨͇̅̉l̶̢̲̖͋͒̈́̂͜ (логотип SteelWool)
 
 ## 3. Версия от 17 сентября
+![image](https://user-images.githubusercontent.com/87380272/133931264-4c7eceae-f2a7-4ab9-8d22-962ee0e03868.png)
+
 3bf3b7_23dcbfcfd46945bcb4fa97004c268cb6_mv2.gif (🐊, screensaver.gif)
 
 ![3bf3b7_23dcbfcfd46945bcb4fa97004c268cb6_mv2](https://user-images.githubusercontent.com/87380272/133930992-71f83733-8d36-4185-b38c-f5e6698f4d82.gif)
