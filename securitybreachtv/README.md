@@ -41,6 +41,9 @@ W̸͕̠͗̊̐͝ê̴͇ ̵̢͉͗͊K̶̡̤͎̘̊n̶̨͕̯̬̈́̚̕o̸̟̊͐̔̏͜͜
 
 ![3bf3b7_23dcbfcfd46945bcb4fa97004c268cb6_mv2](https://user-images.githubusercontent.com/87380272/133930992-71f83733-8d36-4185-b38c-f5e6698f4d82.gif)
 
+![image](https://user-images.githubusercontent.com/87380272/133932179-5f304c77-7d4f-4ea2-beb4-114885fb691f.png)
+
+
 ### https://static.wixstatic.com/media/3bf3b7_c5f0ff879082479c83a7d8a7f285bdc5f000.jpg/v1/fill/w_648,h_365,al_c,q_80,usm_0.33_1.00_0.00/3bf3b7_c5f0ff879082479c83a7d8a7f285bdc5f000.webp (видимо просто заглушка глитч видео)
 
 ### https://video.wixstatic.com/video/3bf3b7_c5f0ff879082479c83a7d8a7f285bdc5/480p/mp4/file.mp4
