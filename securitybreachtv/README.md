@@ -47,4 +47,7 @@ https://static.wixstatic.com/media/3bf3b7_c5f0ff879082479c83a7d8a7f285bdc5f000.j
 
 ![video](https://video.wixstatic.com/video/3bf3b7_c5f0ff879082479c83a7d8a7f285bdc5/480p/mp4/file.mp4)
 
+https://user-images.githubusercontent.com/87380272/133931565-b1fa71fb-462b-4f5d-af66-037b2641a037.mp4
+
+
 p̶̞̖̀̉ḭ̴̈́z̶̫̑̓ź̵̯ạ̸̪͒͌ ̶̪̰̉̽D̴͈̪͌̾E̸͓̘͊̋Ľ̶͉̮Ì̴̖V̶͉͔̈̄Ę̷͓͌͑R̵̜̳͐͋Ÿ̷̭́ (пустое изображение около пиццы)
