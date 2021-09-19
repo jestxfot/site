@@ -43,6 +43,4 @@ W̸͕̠͗̊̐͝ê̴͇ ̵̢͉͗͊K̶̡̤͎̘̊n̶̨͕̯̬̈́̚̕o̸̟̊͐̔̏͜͜
 
 https://static.wixstatic.com/media/3bf3b7_c5f0ff879082479c83a7d8a7f285bdc5f000.jpg/v1/fill/w_648,h_365,al_c,q_80,usm_0.33_1.00_0.00/3bf3b7_c5f0ff879082479c83a7d8a7f285bdc5f000.webp
 
-3bf3b7_c5f0ff879082479c83a7d8a7f285bdc5f000.webp
-
 p̶̞̖̀̉ḭ̴̈́z̶̫̑̓ź̵̯ạ̸̪͒͌ ̶̪̰̉̽D̴͈̪͌̾E̸͓̘͊̋Ľ̶͉̮Ì̴̖V̶͉͔̈̄Ę̷͓͌͑R̵̜̳͐͋Ÿ̷̭́ (пустое изображение около пиццы)
