@@ -11,3 +11,4 @@ https://www.youtube.com/watch?v=nIj2ovBTCN4 (21 сентября)
 ```
 На этой неделе выпуск "Фредди и друзья: On Tour!" был найден в архивах Fazbear Entertainment! Наши лучшие умы оцифровали эти эпизоды для вашего удовольствия от просмотра! Возьмите кусочек пиццы и пообщайтесь с друзьями Фредди, Чикой и Бонни.
 ```
+![image](https://user-images.githubusercontent.com/87380272/134235118-12f6231c-ddfd-4b2f-abcf-8107d2b9ab64.png)
