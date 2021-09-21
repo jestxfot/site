@@ -51,3 +51,11 @@ W̸͕̠͗̊̐͝ê̴͇ ̵̢͉͗͊K̶̡̤͎̘̊n̶̨͕̯̬̈́̚̕o̸̟̊͐̔̏͜͜
 https://user-images.githubusercontent.com/87380272/133931565-b1fa71fb-462b-4f5d-af66-037b2641a037.mp4
 
 p̶̞̖̀̉ḭ̴̈́z̶̫̑̓ź̵̯ạ̸̪͒͌ ̶̪̰̉̽D̴͈̪͌̾E̸͓̘͊̋Ľ̶͉̮Ì̴̖V̶͉͔̈̄Ę̷͓͌͑R̵̜̳͐͋Ÿ̷̭́ (пустое изображение около пиццы)
+
+
+## 4 версия (21 сентября)
+s̸̰̊̾̆͜t̷̟̜͓́a̷̪̲̹̟͂y̷̺̞͓̋͂̿̀ ̴͖͈̓̍͐̌̑ą̶̘̘̙́̅w̴̺̲͊͌̑̓̓a̶̺͈͝ẙ̴̞̞̠̼̜̓ (сменили главную надпись с stay hidden)
+
+### https://static.wixstatic.com/media/3bf3b7_bbc4cd80e5d64558b649c6ad810caf44~mv2.png/v1/fill/w_1229,h_691,al_c,q_90,usm_0.66_1.00_0.01/desk.webp
+
+![image](https://user-images.githubusercontent.com/87380272/134233023-1980b1db-4639-44f2-bc78-7d69096f0421.png)
