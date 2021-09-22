@@ -1,4 +1,4 @@
-# Freddy & Friends: On Tour Episode 1
+# Freddy & Friends: On Tour Episode 1 (7  сентября) 
 https://www.youtube.com/watch?v=ukoHI0cVP_4
 
 ```
@@ -6,7 +6,8 @@ https://www.youtube.com/watch?v=ukoHI0cVP_4
 ```
 ![image](https://user-images.githubusercontent.com/87380272/132955377-0ad98b65-5554-4f5d-8c0b-d23064e875d7.png)
 
-https://www.youtube.com/watch?v=nIj2ovBTCN4 (21 сентября)
+# Freddy & Friends: On Tour Episode 1 (21 сентября)
+https://www.youtube.com/watch?v=nIj2ovBTCN4
 
 ```
 На этой неделе выпуск "Фредди и друзья: On Tour!" был найден в архивах Fazbear Entertainment! Наши лучшие умы оцифровали эти эпизоды для вашего удовольствия от просмотра! Возьмите кусочек пиццы и пообщайтесь с друзьями Фредди, Чикой и Бонни.
