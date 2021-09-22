@@ -6,7 +6,7 @@ https://www.youtube.com/watch?v=ukoHI0cVP_4
 ```
 ![image](https://user-images.githubusercontent.com/87380272/132955377-0ad98b65-5554-4f5d-8c0b-d23064e875d7.png)
 
-# Freddy & Friends: On Tour Episode 1 (21 сентября)
+# Freddy & Friends: On Tour Episode 2 (21 сентября)
 https://www.youtube.com/watch?v=nIj2ovBTCN4
 
 ```
