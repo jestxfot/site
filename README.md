@@ -27,9 +27,9 @@ Glamrock Freddy (likely) - Kellen Goff
 
 "Robotic Overlord" - Tim Simmons
 
-Security Breach Humans(?):
+## Security Breach Humans(?):
+Vanny / Vanessa - Jessica Tang
 
-## Vanny / Vanessa - Jessica Tang
 "What a sweet kid! No evil intentions." - Melissa Kahan
 
 "What a sweet kid! No evil intentions." - Samantha Cavallaro
