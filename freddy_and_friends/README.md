@@ -17,3 +17,13 @@ https://www.youtube.com/watch?v=nIj2ovBTCN4
 
 44 секунда:
 ![image](https://user-images.githubusercontent.com/87380272/134235118-12f6231c-ddfd-4b2f-abcf-8107d2b9ab64.png)
+
+# Freddy & Friends: On Tour Episode 3 (5 октября)
+
+# Freddy & Friends: On Tour Episode 4 (19 октября)
+
+# Freddy & Friends: On Tour Episode 5 (2 ноября)
+
+# Freddy & Friends: On Tour Episode 6 (16 ноября)
+
+# [ВОЗМОЖНО!] Freddy & Friends: On Tour Episode 7 (30 ноября)
