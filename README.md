@@ -20,13 +20,15 @@ VK: https://vk.com/arkins
 ## Security Breach Robots:
 Glamrock Freddy (likely) - Kellen Goff
 
+Roxanne Wolf??? - Michella Moss
+
+"Metal Femme Fatale" (Glamrock Chica???)- Stacey Young
+
+"Heavy Metal Hunter" - Scott William
+
 "Friendly But Annoying Clean-Bot" - Joe Gaudet
 
 "Friendly But Annoying Clean-Bot" - Steve Schlosser
-
-"Metal Femme Fatale" - Stacey Young
-
-"Heavy Metal Hunter" - Scott William
 
 "Robotic Overlord" - Tim Simmons
 
