@@ -21,6 +21,20 @@ https://www.youtube.com/watch?v=nIj2ovBTCN4
 ![image](https://user-images.githubusercontent.com/87380272/134235118-12f6231c-ddfd-4b2f-abcf-8107d2b9ab64.png)
 
 # Freddy & Friends: On Tour Episode 3 (5 октября)
+https://www.youtube.com/watch?v=Kdmm362PTo8
+
+```
+Fazbear Entertainment определенно хорошо спрятала эти эпизоды, но нашей архивной команде удалось раскопать их! Похоже, Фредди и его команда все еще гастролируют, Фокси у них на хвосте - но почему все сотрясается?
+```
+
+12 секунда:
+
+![image](https://user-images.githubusercontent.com/87380272/136229500-f7568aaa-acd0-45b0-a72f-be1a34ab4c69.png)
+
+34 секунда:
+
+![image](https://user-images.githubusercontent.com/87380272/136229938-15f1708c-16ce-4b0e-8191-30fa243582ff.png)
+
 
 # Freddy & Friends: On Tour Episode 4 (19 октября)
 
