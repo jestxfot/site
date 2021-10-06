@@ -73,4 +73,4 @@ a̴̻̯͚̩̒̌ŕ̷̛̖e̵̛̳̥̅̆́ ̴̢̦͚̀̏̇̕y̶̞̠̼̟̓͂̕o̸̭̥�
 
 I thought I heard something... (надпись на телефоне)
 
-
+Новый 2 звук: https://drive.google.com/file/d/1wWrSt1BEa89CBtqllvtcozXhaLifeRlU/view?usp=sharing
