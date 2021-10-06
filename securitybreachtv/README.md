@@ -69,6 +69,8 @@ b̷̊̏͜e̴̜̍͜ ̷̧̍ͅc̵͉̃a̴̠̪̎́r̸͔͓͝ȅ̸̜f̷͕͗̈́u̶̪͑̄l
 
 a̴̻̯͚̩̒̌ŕ̷̛̖e̵̛̳̥̅̆́ ̴̢̦͚̀̏̇̕y̶̞̠̼̟̓͂̕o̸̭̥͕̪̔̂ǘ̸͓͘ ̸̼͎̌̾͆͝s̷̫͆a̴̳̗̅f̶̰̒͛̉e̵̢̐͌.png (название изображения с монитором)
 
-I thought I heard something... (скрытая запись)
+![image](https://user-images.githubusercontent.com/87380272/136245443-5cf8ec7b-d68a-465f-ae4e-d0491e17abed.png)
+
+I thought I heard something... (надпись на телефоне)
 
 
