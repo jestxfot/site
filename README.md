@@ -17,6 +17,11 @@ VK: https://vk.com/arkins
 
 
 # Голоса
+
+Penny Balfour - ???
+
+Leah Voysey - ???
+
 ## Security Breach Robots:
 Glamrock Freddy (likely) - Kellen Goff
 
