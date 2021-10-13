@@ -25,11 +25,11 @@ Leah Voysey - ???
 ## Security Breach Robots:
 Glamrock Freddy (likely) - Kellen Goff
 
-Roxanne Wolf??? - Michella Moss
+(Roxanne Wolf???) - Michella Moss
 
 "Metal Femme Fatale" (Glamrock Chica???)- Stacey Young
 
-"Heavy Metal Hunter" - Scott William
+"Heavy Metal Hunter" (Monty Gator???) - Scott William (Devin Lauderdale???)
 
 "Friendly But Annoying Clean-Bot" - Joe Gaudet
 
