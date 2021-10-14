@@ -29,7 +29,7 @@ Fazbear Entertainment определенно хорошо спрятала эт�
 
 12 секунда:
 
-![image](https://user-images.githubusercontent.com/87380272/136229500-f7568aaa-acd0-45b0-a72f-be1a34ab4c69.png)
+![image](https://user-images.githubusercontent.com/87380272/137361108-a26418b7-231e-4c41-80eb-443a72327209.png)
 
 34 секунда:
 
