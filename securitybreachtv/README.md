@@ -74,3 +74,9 @@ a̴̻̯͚̩̒̌ŕ̷̛̖e̵̛̳̥̅̆́ ̴̢̦͚̀̏̇̕y̶̞̠̼̟̓͂̕o̸̭̥�
 I thought I heard something... (надпись на телефоне)
 
 Новый 2 звук: https://drive.google.com/file/d/1wWrSt1BEa89CBtqllvtcozXhaLifeRlU/view?usp=sharing
+
+## 6 версия (15 октября)
+
+![image](https://user-images.githubusercontent.com/87380272/137582367-6b3b4895-e61b-4849-9203-ba3743c608fe.png)
+
+![image](https://static.wixstatic.com/media/3bf3b7_8a0092a92889441380037d3aa18eb764~mv2.png/v1/fill/w_1229,h_691,al_c,q_90,usm_0.66_1.00_0.01/d%CC%B4%CC%B3%CC%AD%CC%A3%CC%AE%CC%8D%C4%99%CC%B8%CC%B1%CC%AB%CC%9F%CD%8A%CC%8Es%CC%B6%CC%BA%CC%B1%CC%B3%CC%A6%CC%86%CC%92%E1%B8%B5%CC%B7%CD%97%CD%82%CC%88%CC%81%CD%9D%20%CC%B5%CC%A2%CD%96%CC%9D%CC%B0%CD%8Cd%CC%B7%CC%BC%CC%AA%CC%8A%CC%84e%CC%B4%CC%AE%CC%A4%CC%A6%CD%8A%CD%9C%CD%A0s%CC%B5%CC%9F%CD%9A%CD%82%CC%84%CD%98k%CC%B8%CC%9B%CD%99%CC%BC%CC%8F%CC%92%20%CC%B8%CD%8D%CD%99%CC%BD%CC%8C%CC%89%CD%90d%CC%B6%CC%9F%CD%93%CC%AB%CC%BD%CC%88%CC%81%CC%BE%CC%92%CD%85e%CC%B7%CC%97%CC%97%CC%9F%CD%8C%CC%BE.webp)
