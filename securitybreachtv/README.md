@@ -67,7 +67,9 @@ s̸̰̊̾̆͜t̷̟̜͓́a̷̪̲̹̟͂y̷̺̞͓̋͂̿̀ ̴͖͈̓̍͐̌̑á̶̘̅
 
 b̷̊̏͜e̴̜̍͜ ̷̧̍ͅc̵͉̃a̴̠̪̎́r̸͔͓͝ȅ̸̜f̷͕͗̈́u̶̪͑̄l̴̢̠̍ (на мониторе)
 
-a̴̻̯͚̩̒̌ŕ̷̛̖e̵̛̳̥̅̆́ ̴̢̦͚̀̏̇̕y̶̞̠̼̟̓͂̕o̸̭̥͕̪̔̂ǘ̸͓͘ ̸̼͎̌̾͆͝s̷̫͆a̴̳̗̅f̶̰̒͛̉e̵̢̐͌.png (название изображения с монитором)
+### a̴̻̯͚̩̒̌ŕ̷̛̖e̵̛̳̥̅̆́ ̴̢̦͚̀̏̇̕y̶̞̠̼̟̓͂̕o̸̭̥͕̪̔̂ǘ̸͓͘ ̸̼͎̌̾͆͝s̷̫͆a̴̳̗̅f̶̰̒͛̉e̵̢̐͌.png
+https://static.wixstatic.com/media/3bf3b7_187a7cf697b54540b7ce172fb3d67f7c~mv2.png/v1/fill/w_1229,h_691,al_c,q_90,usm_0.66_1.00_0.01/a%CC%B4%CC%BB%CC%AF%CD%9A%CC%A9%CC%92%CC%8C%C5%95%CC%B7%CC%9B%CC%96e%CC%B5%CC%9B%CC%B3%CC%A5%CC%85%CC%86%CC%81%20%CC%B4%CC%A2%CC%A6%CD%9A%CC%80%CC%8F%CC%87%CC%95y%CC%B6%CC%9E%CC%A0%CC%BC%CC%9F%CC%93%CD%82%CC%95o%CC%B8%CC%AD%CC%A5%CD%95%CC%AA%CC%94%CC%82%C7%98%CC%B8%CD%93%CD%98%20%CC%B8%CC%BC%CD%8E%CC%8C%CC%BE%CD%86%CD%9Ds%CC%B7%CC%AB%CD%86a%CC%B4%CC%B3%CC%97%CC%85f%CC%B6%CC%B0%CC%92%CD%9B%CC%89e%CC%B5%CC%A2%CC%90%CD%8C.webp
+![монитор](https://static.wixstatic.com/media/3bf3b7_187a7cf697b54540b7ce172fb3d67f7c~mv2.png/v1/fill/w_1229,h_691,al_c,q_90,usm_0.66_1.00_0.01/a%CC%B4%CC%BB%CC%AF%CD%9A%CC%A9%CC%92%CC%8C%C5%95%CC%B7%CC%9B%CC%96e%CC%B5%CC%9B%CC%B3%CC%A5%CC%85%CC%86%CC%81%20%CC%B4%CC%A2%CC%A6%CD%9A%CC%80%CC%8F%CC%87%CC%95y%CC%B6%CC%9E%CC%A0%CC%BC%CC%9F%CC%93%CD%82%CC%95o%CC%B8%CC%AD%CC%A5%CD%95%CC%AA%CC%94%CC%82%C7%98%CC%B8%CD%93%CD%98%20%CC%B8%CC%BC%CD%8E%CC%8C%CC%BE%CD%86%CD%9Ds%CC%B7%CC%AB%CD%86a%CC%B4%CC%B3%CC%97%CC%85f%CC%B6%CC%B0%CC%92%CD%9B%CC%89e%CC%B5%CC%A2%CC%90%CD%8C.webp)
 
 ![image](https://user-images.githubusercontent.com/87380272/136245443-5cf8ec7b-d68a-465f-ae4e-d0491e17abed.png)
 
