@@ -71,7 +71,7 @@ b̷̊̏͜e̴̜̍͜ ̷̧̍ͅc̵͉̃a̴̠̪̎́r̸͔͓͝ȅ̸̜f̷͕͗̈́u̶̪͑̄l
 https://static.wixstatic.com/media/3bf3b7_187a7cf697b54540b7ce172fb3d67f7c~mv2.png/v1/fill/w_1229,h_691,al_c,q_90,usm_0.66_1.00_0.01/a%CC%B4%CC%BB%CC%AF%CD%9A%CC%A9%CC%92%CC%8C%C5%95%CC%B7%CC%9B%CC%96e%CC%B5%CC%9B%CC%B3%CC%A5%CC%85%CC%86%CC%81%20%CC%B4%CC%A2%CC%A6%CD%9A%CC%80%CC%8F%CC%87%CC%95y%CC%B6%CC%9E%CC%A0%CC%BC%CC%9F%CC%93%CD%82%CC%95o%CC%B8%CC%AD%CC%A5%CD%95%CC%AA%CC%94%CC%82%C7%98%CC%B8%CD%93%CD%98%20%CC%B8%CC%BC%CD%8E%CC%8C%CC%BE%CD%86%CD%9Ds%CC%B7%CC%AB%CD%86a%CC%B4%CC%B3%CC%97%CC%85f%CC%B6%CC%B0%CC%92%CD%9B%CC%89e%CC%B5%CC%A2%CC%90%CD%8C.webp
 ![монитор](https://static.wixstatic.com/media/3bf3b7_187a7cf697b54540b7ce172fb3d67f7c~mv2.png/v1/fill/w_1229,h_691,al_c,q_90,usm_0.66_1.00_0.01/a%CC%B4%CC%BB%CC%AF%CD%9A%CC%A9%CC%92%CC%8C%C5%95%CC%B7%CC%9B%CC%96e%CC%B5%CC%9B%CC%B3%CC%A5%CC%85%CC%86%CC%81%20%CC%B4%CC%A2%CC%A6%CD%9A%CC%80%CC%8F%CC%87%CC%95y%CC%B6%CC%9E%CC%A0%CC%BC%CC%9F%CC%93%CD%82%CC%95o%CC%B8%CC%AD%CC%A5%CD%95%CC%AA%CC%94%CC%82%C7%98%CC%B8%CD%93%CD%98%20%CC%B8%CC%BC%CD%8E%CC%8C%CC%BE%CD%86%CD%9Ds%CC%B7%CC%AB%CD%86a%CC%B4%CC%B3%CC%97%CC%85f%CC%B6%CC%B0%CC%92%CD%9B%CC%89e%CC%B5%CC%A2%CC%90%CD%8C.webp)
 
-![image](https://user-images.githubusercontent.com/87380272/136245443-5cf8ec7b-d68a-465f-ae4e-d0491e17abed.png)
+![красная хрень](https://user-images.githubusercontent.com/87380272/136245443-5cf8ec7b-d68a-465f-ae4e-d0491e17abed.png)
 
 I thought I heard something... (надпись на телефоне)
 
@@ -79,8 +79,8 @@ I thought I heard something... (надпись на телефоне)
 
 ## 6 версия (15 октября)
 
-![image](https://user-images.githubusercontent.com/87380272/137582367-6b3b4895-e61b-4849-9203-ba3743c608fe.png)
-
 ### d̴̳̭̣̮̍ę̸̱̫̟͊̎s̶̺̱̳̦̆̒ḵ̷͗͂̈́͝ d̷̼̪̊̄e̴̮̤̦͊͜͠s̵̟͚͂̄͘k̸̛͙̼̏̒ d̶̟͓̫̽̈́̾̒ͅe̷̗̗̟͌̾
 https://static.wixstatic.com/media/3bf3b7_8a0092a92889441380037d3aa18eb764~mv2.png/v1/fill/w_1229,h_691,al_c,q_90,usm_0.66_1.00_0.01/d%CC%B4%CC%B3%CC%AD%CC%A3%CC%AE%CC%8D%C4%99%CC%B8%CC%B1%CC%AB%CC%9F%CD%8A%CC%8Es%CC%B6%CC%BA%CC%B1%CC%B3%CC%A6%CC%86%CC%92%E1%B8%B5%CC%B7%CD%97%CD%82%CC%88%CC%81%CD%9D%20%CC%B5%CC%A2%CD%96%CC%9D%CC%B0%CD%8Cd%CC%B7%CC%BC%CC%AA%CC%8A%CC%84e%CC%B4%CC%AE%CC%A4%CC%A6%CD%8A%CD%9C%CD%A0s%CC%B5%CC%9F%CD%9A%CD%82%CC%84%CD%98k%CC%B8%CC%9B%CD%99%CC%BC%CC%8F%CC%92%20%CC%B8%CD%8D%CD%99%CC%BD%CC%8C%CC%89%CD%90d%CC%B6%CC%9F%CD%93%CC%AB%CC%BD%CC%88%CC%81%CC%BE%CC%92%CD%85e%CC%B7%CC%97%CC%97%CC%9F%CD%8C%CC%BE.webp
 ![image](https://static.wixstatic.com/media/3bf3b7_8a0092a92889441380037d3aa18eb764~mv2.png/v1/fill/w_1229,h_691,al_c,q_90,usm_0.66_1.00_0.01/d%CC%B4%CC%B3%CC%AD%CC%A3%CC%AE%CC%8D%C4%99%CC%B8%CC%B1%CC%AB%CC%9F%CD%8A%CC%8Es%CC%B6%CC%BA%CC%B1%CC%B3%CC%A6%CC%86%CC%92%E1%B8%B5%CC%B7%CD%97%CD%82%CC%88%CC%81%CD%9D%20%CC%B5%CC%A2%CD%96%CC%9D%CC%B0%CD%8Cd%CC%B7%CC%BC%CC%AA%CC%8A%CC%84e%CC%B4%CC%AE%CC%A4%CC%A6%CD%8A%CD%9C%CD%A0s%CC%B5%CC%9F%CD%9A%CD%82%CC%84%CD%98k%CC%B8%CC%9B%CD%99%CC%BC%CC%8F%CC%92%20%CC%B8%CD%8D%CD%99%CC%BD%CC%8C%CC%89%CD%90d%CC%B6%CC%9F%CD%93%CC%AB%CC%BD%CC%88%CC%81%CC%BE%CC%92%CD%85e%CC%B7%CC%97%CC%97%CC%9F%CD%8C%CC%BE.webp)
+
+![красная хрень](https://user-images.githubusercontent.com/87380272/137582367-6b3b4895-e61b-4849-9203-ba3743c608fe.png)
