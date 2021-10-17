@@ -13,8 +13,6 @@ VK: https://vk.com/arkins
 
 ![image](https://user-images.githubusercontent.com/87380272/134428356-4a9e1294-28bf-4891-8001-63850ea3e0a2.png)
 
-![image](https://user-images.githubusercontent.com/87380272/134942326-d81df959-2212-4d66-88db-760331cf5423.png)
-
 ![тест два](https://user-images.githubusercontent.com/87380272/137633373-ec6b5ac9-f2d9-41cd-b510-e6554cba6d9e.png)
 
 
