@@ -23,5 +23,31 @@ https://www.youtube.com/watch?v=dpokLoTIQa4
 
 ![image](https://user-images.githubusercontent.com/87380272/137625979-dcbc75fc-22fc-43f6-80c5-08a097148222.png)
 
+```
+Glitchtrap: 
+When I first found you, you were nothing.
+You were small, pathetic.
+But now, you are more.
+Are you ready?
+
+
+Vanny:
+Gregory, we can get you out of here.
+You and me together.
+They won't stop hunting you.
+None of them will stop hunting you.
+We have to get you out by morning.
+
+Boss (???):
+You will do as I say!
+You will bring me what I want!
+And if you fail me, then you will...
+both of you...
+Burn!
+
+Vanny:
+There is more going on here than you realize.
+```
+
 ## 19 новых тизеров от Давко (март 2021)
 https://imgur.com/a/UZGX2AY
