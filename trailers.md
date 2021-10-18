@@ -4,6 +4,25 @@ https://www.youtube.com/watch?v=k2vvr86scNs
 
 ![image](https://user-images.githubusercontent.com/87380272/137626070-94102869-44ed-4d50-a6db-6d6c8d841211.png)
 
+```
+Vanessa:
+Gregory, your friends are worried about you.
+They're here with me.
+Please come out.
+Gregory, I may have lost my temper earlier,
+but it was just a glitch.
+It won't happen again.
+It's been such a difficult day for all of us.
+Why don't you come home, and we can play a game together.
+It won't happen again.
+[SNIFFLING]
+It was just a glitch.
+
+Glamrock Freddy:
+Gregory, be still.
+I think she's found us.
+[SCREAM]
+```
 
 ## Five Nights at Freddy’s: Security Breach RTX (12 января 2021)
 https://www.youtube.com/watch?v=y1Ycz6Yo5AY
