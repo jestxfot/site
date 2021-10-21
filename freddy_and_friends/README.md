@@ -43,6 +43,11 @@ https://www.youtube.com/watch?v=17J15xTX_B8
 Победит ли дружба в этом эпизоде "Фредди и друзья: On Tour? Начнут ли Фредди и команда наконец-то видеться с Фокси? Настройтесь на эфир, чтобы узнать! 
 ```
 
+17 секунда:
+
+![image](https://user-images.githubusercontent.com/87380272/138230742-e92a7b80-389d-490e-bb54-c5601cd71774.png)
+
+
 # Freddy & Friends: On Tour Episode 5 (2 ноября)
 
 # Freddy & Friends: On Tour Episode 6 (16 ноября)
