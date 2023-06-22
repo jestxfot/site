@@ -19,7 +19,7 @@ to this section's matching END comment to see page-specific styles.
   --color-bg: white;
   --color-text-main: white;
   --color-primary: white;
-  --image-max-width: 500px; /* Размер изображения
+  --image-max-width: 500px; /* Размер изображения */
 }
 
 /* Basic page style resets */
